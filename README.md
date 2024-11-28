@@ -1,2 +1,2 @@
-# BTech-Notes-KGRCET-
+# BTech-Notes-KGRCET
 KGRCET NOTES
